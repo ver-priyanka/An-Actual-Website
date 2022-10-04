@@ -1,3 +1,5 @@
+> As school starts every year, you may start to contemplate which school supplies are actually necessary. Many people tends to buy anything that catches their eye, but this is a list for all the truly necessary supplies to have in school. You can buy these items at [Amazon](amazon.com), [Walmart](walmart.com), or other stores. 
+
 ## 1. Pencils 
 > You often take notes while in school, so it is completely necesary to have a writing utensil. Out of all writing utensils, pencils (classic or mechanical) seem to be the most useful as one can easily erase if there is a mistake made. Also, (mechanical) pencils tend to last longer than pens as you simply just replace the lead. You cannot replace the ink yourself in pens (#5).
 > > ![Image](https://cdn.pixabay.com/photo/2017/08/25/03/14/pencil-2679000_1280.png)
